@@ -15,4 +15,4 @@ Atualmente, estou blindando a minha base técnica através de formações na **O
 ---
 
 📬 **Como me encontrar:**
-* [Meu LinkedIn](https://www.linkedin.com/in/filipe-da-silva-kunz-a75a2a176/)
+* [Meu LinkedIn](https://www.linkedin.com/in/filipe-kunz)
